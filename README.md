@@ -34,7 +34,6 @@ Interests: Software Development, Cybersecurity
 
 - Connect with me on [Twitter](https://x.com/destinmaz77?s=11),[LinkedIn](https://www.linkedin.com/in/destin-mokonzi-132121347?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app)
    [Instagram](https://www.instagram.com/destin_maz77?igsh=cXVoMGJ1NmFlOGFx&utm_source=qr)
-- 
 
 Thanks for stopping by! Let's connect and explore the fascinating world of technology together. 🚀
 
